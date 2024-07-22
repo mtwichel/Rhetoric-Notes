@@ -47,7 +47,7 @@ Webster, Worcester, and Bouvier all define a citizen to be a person in the Unite
 2. What are some examples of strong language did Dr. Martin Luther King Jr. use? What emotions did it invoke?
 3. How did he use emotion to be persuasive? Did it make you conviced he was right?
 
-<a href="http://www.youtube.com/watch?feature=player_embedded&v=v=smEqnnklfYs&start=554s&end=868
+<a href="http://www.youtube.com/watch?feature=player_embedded&v=smEqnnklfYs&start=554s&end=868
 " target="_blank"><img src="http://img.youtube.com/vi/smEqnnklfYs/0.jpg" 
 alt="Dr Martin Luther King Jr - I Have A Dream Speech " width="240" height="180" border="0" /></a>
 
